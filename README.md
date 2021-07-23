@@ -1,3 +1,2 @@
-# Nino-chan02.github.io
-Thanks To
-Aqulzz
+# zennn08.github.io
+thanks To Aqulzz
